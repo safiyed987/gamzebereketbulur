@@ -1,1 +1,1 @@
-# gamzebereketbulur
+14.05.2018 >> Verilen ödevdeki kodları yazıp teslim ettim.
